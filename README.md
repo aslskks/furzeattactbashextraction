@@ -2,3 +2,4 @@
 
 
 only for ethical use
+&copy; 2023 aslskks 
